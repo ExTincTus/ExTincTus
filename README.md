@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ExTincTus
+- 👀 I’m interested in AMOGUS
+- 🌱 I’m currently learning C#
+- 📫 dandus@skaut.cz
